@@ -1,0 +1,5 @@
+- Hi, I’m @starfenrir
+- I like playing games such as ULTRAKILL and Roblox.
+- Right now, I'm looking into developing games on PICO-8.
+- For now, I'm going to be a solo developer, or be with my friends.
+- I recommend sending an email to sylveonpersona@outlook.com, as it is my business and alternative email.
